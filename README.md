@@ -4,4 +4,4 @@
 - 💞️ I'm always on the lookout for cool collaboration opportunities, so if you're looking for a passionate partner-in-crime, I'm your girl!
 - 📫 Wanna chat? Hit me up via email or LinkedIn. Let's take the coding world by storm!
 - LinkedIn: https://www.linkedin.com/in/imranfi
-- Email: imranfi@sheridancollege.ca
+- Email: fizzaimran320@gmail.com
